@@ -1,0 +1,1 @@
+# ficuslot.github.io
