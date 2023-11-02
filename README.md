@@ -1,1 +1,1 @@
-# FICUS LOT
+# ficuslot.github.io
